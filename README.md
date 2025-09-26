@@ -1,5 +1,5 @@
 # 💫 About Me:
-An insightful page on instagram
+GlyphThoughts. Fragments carved in symbols. Not loud, not bright. Just sharp truths in quiet forms.
 
 
 ## 🌐 Socials:
